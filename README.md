@@ -1,4 +1,4 @@
-<b>Privacy Policy<b>
+<b>Privacy Policy</b>
 
 Protecting your private information is our priority. This Statement of Privacy applies to
 Mellow Mole and governs data collection and usage. For the purposes
